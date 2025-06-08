@@ -1,2 +1,2 @@
 # Trendsetters-explore-the-store
-潮人探店
+星球点评
